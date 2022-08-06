@@ -7,4 +7,5 @@ ANAND PRAKASH SINGH| Excited to see you here! Let's build a great tech surroundi
 - 👯 I’m looking to collaborate on Web development and electronics stuff eg. Iot etc.
 - 🤔 I’m looking for help with some cool technical skills which can revolutionize market with it's emergence.
 You can reach me at:-
-![image]
+anandfollowsbuddha2020@gmail.com
+https://www.linkedin.com/in/anand-prakash-singh-1955a220b
